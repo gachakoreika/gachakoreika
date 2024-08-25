@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Gacha
+- 👀 I’m interested in world... but not how delete world from this galaxy...
+- ⚡ Fun fact: I'm hedgehog
